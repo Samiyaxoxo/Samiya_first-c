@@ -1,1 +1,0 @@
-# Samiya_first-c
